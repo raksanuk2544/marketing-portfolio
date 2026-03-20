@@ -1,5 +1,11 @@
 # Ratcha Raksanuk
+## About Me
 
+Social Media Content Creator with experience in product marketing
+and short-form video production for Facebook, TikTok and LINE OA.
+
+Experienced in creating product-focused content, planning social
+media strategy, and using AI tools to improve marketing performance.
 Social Media Content Creator | Digital Marketing
 
 Specialized in:
