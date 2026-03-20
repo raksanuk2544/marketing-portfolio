@@ -8,7 +8,6 @@ Specialized in:
 - Short-form Video Content
 - AI-assisted Content Creation
 
-wall-rack-campaign.md
 Platforms:
 Facebook | TikTok | LINE Official Account
 ## Example Content
